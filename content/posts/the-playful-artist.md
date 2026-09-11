@@ -160,7 +160,7 @@ It’s always fragile, held in place with duct tape and glue.
 
 But when you truly love something, it becomes a deep part of who you are.
 Inseparable from you.
-It becomes something you return too, when times are hard, rather than something your find energy for, when times are good.
+It becomes something you return to when times are hard, rather than something your find energy for, when times are good.
 I have had this very transformation lately with my meditation practice.
 That did once feel like something I “should do”.
 It has now become something I love.
