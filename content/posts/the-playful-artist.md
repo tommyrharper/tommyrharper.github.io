@@ -100,8 +100,8 @@ It was something more.
 Something sacred.
 A way to understand himself, and the world.
 To process his thoughts and emotions.
-To create something beautiful, to share with others.
-But he never lost that sense of joy, and play in his work.
+To create something beautiful to share with others.
+But he never lost that sense of joy and play in his work.
 He didn’t make it as a professional artist, though he had toyed with the idea.
 Instead he found something else creative, that was easier to make a living with, writing articles for the local paper.
 He wished he had more time to dedicate to his art.
