@@ -31,7 +31,7 @@ The lead would snap as it pressed down the detail deep into the page.
 But it was fine, he had more pencils, and sharpeners too!
 His work was accurate, and detailed.
 Realist.
-Soon to be ultra-real!
+Soon to be ultra-realist!
 He was getting better everyday.
 He was sure of it.
 Glory would be his in the end!
