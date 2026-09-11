@@ -56,7 +56,7 @@ Breaking and more and lead.
 One day he threw his paint pots on the floor and cried.
 He started to miss some days, and felt guilty.
 He had promised himself he would not stop, until he became one of the greats!
-But he began to hate painting, and one day, not long after the start of his great plans, he gave it up.
+But he began to hate painting, and one day, not long after the start of his great plans, he gave up.
 
 There was another boy, not far down the road from where the first one lived.
 His sister used to play with him when he was younger, bringing out the paint pots and pencil, and they would have hours of fun, playing with the shapes and colours.
