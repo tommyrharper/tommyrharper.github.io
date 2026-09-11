@@ -24,7 +24,7 @@ He wanted to be an artist - someone who would go down in history among the great
 Determined to make progress on his goal, he was fully convinced, with enough hard work, he would earn a spot among his heroes.
 He made a commitment.
 Every day he would wake up, gather his pencils, his paper, his paints, and work furiously.
-He would do an hour everyday before school.
+He would do an hour every day before school.
 And more when he got back home!
 It began with a vengeance.
 
@@ -54,7 +54,7 @@ Or the judges were wrong!
 This didn’t feel fair at all.
 The early mornings started to grind on the boy.
 He began to disdain his morning sessions.
-Breaking more and more and lead.
+Breaking more and more lead.
 One day he threw his paint pots on the floor and cried.
 He started to miss some days, and felt guilty.
 He had promised himself he would not stop, until he became one of the greats!
@@ -68,7 +68,7 @@ He had no ambitions to be great, but he sure thought art was fun!
 In fact he snuck up early sometimes before school, to grab his sister's art materials, and draw the funny faces and creatures that always made him smile.
 It was a little escape, a secret world of his own that was always playful and fun!
 Where his imagination could run wild and free.
-Where monsters really existed, and heros, and magical beings too.
+Where monsters really existed, and heroes, and magical beings too.
 
 Sometimes when he would find himself doodling in the corner of his page at school, and by the end of the lesson he would have a whole imaginary world on his page, and have learnt no math at all!
 The teachers told him off sometimes for not paying attention.
@@ -125,7 +125,7 @@ To discover what he wanted it to be, and let that erupt on the page.
 
 # The truth
 
-Neither of these boys exist.
+Neither of these boys exists.
 Except inside of me.
 I do really have a [sister, who is a brilliant artist](https://www.instagram.com/rebeccaharperartist_).
 She shared with me the sense of love and joy in the act of creation.
@@ -181,7 +181,7 @@ Where you can make it less like steamed broccoli (I actually love broccoli), and
 Once it is something you look forward to, and eventually something you crave, it won’t be hard to make that habit stick.
 In fact you may find yourself having to draw boundaries around it so it doesn’t take over the rest of your life.
 That’s where I am now with my meditation.
-Each morning is this sacred, special time, where I get to experience love and joy in my heart, and I have to make myself stop, because I have other responsibilities, than just feeling good!
+Each morning is this sacred, special time, where I get to experience love and joy in my heart, and I have to make myself stop, because I have other responsibilities than just feeling good!
 
 # Practical notes
 
