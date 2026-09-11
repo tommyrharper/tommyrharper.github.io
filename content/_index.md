@@ -8,4 +8,7 @@ recent = false
 recent_max = 15
 recent_more_text = "more »"
 +++
-Hi, I'm Tom. this is the content index
+
+Welcome to my little corner of the web.
+
+Please explore freely...
