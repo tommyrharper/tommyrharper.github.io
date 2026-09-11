@@ -169,7 +169,7 @@ It is no longer like the boy trying to draw the perfect image.
 It is more like an adventure in my mind, a world of discovery that lies within.
 
 My encouragement to you is, where there is something you want to make a part of your life, but you can’t quite make it stick - to approach it more like the second boy.
-And see how you can make it feel like and adventure and a source of play.
+And see how you can make it feel like an adventure and source of play.
 Where you can make it less like steamed broccoli (I actually love broccoli), and more like play and fun!
 
 Once it is something you look forward to it, and eventually something you crave, it won’t be hard to make that habit stick.
