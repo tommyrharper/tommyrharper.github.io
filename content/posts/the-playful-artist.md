@@ -58,7 +58,7 @@ He began to disdain his morning sessions.
 Breaking more and more lead.
 One day he threw his paint pots on the floor and cried.
 He started to miss some days, and felt guilty.
-He had promised himself he would not stop, until he became one of the greats!
+He had promised himself he would not stop until he became one of the greats!
 But he began to hate painting, and one day, not long after the start of his great plans, he gave up.
 
 There was another boy, not far down the road from where the first one lived.
@@ -153,13 +153,13 @@ Notice, however, that the second boy never tries.
 He never becomes a famous artist, but he ends up with something much richer and deeper in the end.
 A practice that changes his life.
 Something deep, and full of joy and meaning, to share with the people he loves.
-He truly discovers the profound richness of his practice and it blossoms into something that changes his life.
+He truly discovers the profound richness of his practice and it blossoms into something wonderful.
 
 The more we can be like the second boy, the easier it will be to integrate the practices we want into our lives.
 The happier the journey will be, and perhaps the deeper our mastery over our chosen domain will become.
 Because when something becomes a centre of joy and pleasure in our lives, we gravitate towards it.
 It becomes something we cannot pull ourselves away from.
-Whereas something that is “good for us”, or that we “should do”, it inevitably gets dropped the moment our energy is low, and our willpower is weak.
+Whereas something that is “good for us”, or that we “should do”, inevitably gets dropped the moment our energy is low, and our willpower is weak.
 It never really sticks.
 It’s always fragile, held in place with duct tape and glue.
 
