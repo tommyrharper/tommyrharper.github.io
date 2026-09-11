@@ -162,8 +162,7 @@ But when you truly love something, it becomes a deep part of who you are.
 Inseparable from you.
 It becomes something you return to when times are hard, rather than something your find energy for, when times are good.
 I have had this very transformation lately with my meditation practice.
-That did once feel like something I “should do”.
-It has now become something I love.
+What once felt like something I “should do”, has become something I love.
 Because I found pleasure and joy in it.
 Because it has become something that makes me feel good.
 And also it has become something where I exercise my creativity and freedom.
