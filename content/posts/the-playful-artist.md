@@ -151,7 +151,7 @@ Something deep, and full of joy and meaning, to share with the people he loves.
 He truly discovers the profound richness of his practice and it blossoms into something that changes his life.
 
 I think the more we can be like the second boy, with the things we wish integrate into our lives, the easier a time we will have.
-The happier the journey will be, and perhaps the deeply our mastery over our chosen domain will become.
+The happier the journey will be, and perhaps the deeper our mastery over our chosen domain will become.
 Because when something becomes a centre of joy and pleasure in our lives, we gravitate towards it.
 It becomes something we cannot pull ourselves away from.
 Whereas something that is “good for us”, or that we “should do”, it inevitably gets dropped the moment our energy is low, and our willpower is weak.
