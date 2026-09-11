@@ -9,6 +9,3 @@ recent_max = 15
 recent_more_text = "more »"
 +++
 
-Welcome to my little corner of the web.
-
-Please explore freely...
