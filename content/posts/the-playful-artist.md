@@ -15,7 +15,7 @@ comment = false
 code_copy = true
 +++
 
-> This piece is in honour of my sister, who taught me play, the wonder of art, and how to have fun!
+> This piece is in honour of my [sister](https://www.instagram.com/rebeccaharperartist_), who taught me play, the wonder of art, and how to have fun!
 
 Once upon a time, there was a little lad, who had a bright idea.
 He wanted to be an artist - someone who would go down in history among the greats.
@@ -123,12 +123,12 @@ To discover what he wanted it to be, and let that erupt on the page.
 
 Neither of these boys exist.
 Except inside of me.
-I do really have a sister, who is a brilliant artist.
+I do really have a [sister, who is a brilliant artist](https://www.instagram.com/rebeccaharperartist_).
 She shared with me the sense of love and joy in the act of creation.
 The playfulness in art.
 She has always been a source of light in my life in this way, and continues to inspire me with her creative practice.
 I did actually unexpectedly win an art competition when I was a kid, but only one, the rest are imaginary!
-My sister has of course won many more awards and prizes, as a truly brilliant artist.
+My sister has of course won many more awards and prizes, as a truly gifted artist.
 I, on the other hand, found other outlets.
 But I try to bring the spirit of artistic creation she shared with me into other elements of my life.
 Poetry has been one area that has retained for me the purity expressed in this piece - remaining a place of pure self-expression and play.
