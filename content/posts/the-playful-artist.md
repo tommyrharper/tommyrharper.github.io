@@ -48,7 +48,8 @@ They would never achieve greatness like him.
 He applied for a competition, and failed.
 The work that won was far less accurate than his own.
 He felt confused and frustrated.
-How could they win, surely they hadn’t worked as hard as him!
+How could they win?
+Surely they hadn’t worked as hard as him!
 Could they just be more talented?
 Or the judges were wrong!
 This didn’t feel fair at all.
@@ -79,7 +80,7 @@ Toads with 15 legs, and enchanting tentacles that could speak in secret vibratio
 He knew it was real, even if other people didn’t.
 
 One day one of his teachers, who normally told him off for not paying attention, saw one of his drawings and told him he should submit it for a competition.
-“A competition for art?” He thought.
+“A competition for art?” he thought.
 How strange.
 Art wasn’t a competition.
 It was just for fun.
