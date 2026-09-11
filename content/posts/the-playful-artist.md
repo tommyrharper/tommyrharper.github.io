@@ -130,8 +130,8 @@ She has always been a source of light in my life in this way, and continues to i
 I did actually unexpectedly win an art competition when I was a kid, but only one, the rest are imaginary!
 My sister has of course won many more awards and prizes, as a truly brilliant artist.
 
-I on the other hand found other outlets.
-But I try to bring the spirit of artistic creation she shared with me into the other elements of my life.
+I, on the other hand, found other outlets.
+But I try to bring the spirit of artistic creation she shared with me into other elements of my life.
 Poetry has been one outlet that has retained for me the purity expressed in this piece, of being a place of pure self-expression and play.
 
 However I am also ever so much the first boy, not in regards to my art or poetry, but concerning so many other elements of my life.
