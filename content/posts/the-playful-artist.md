@@ -107,7 +107,7 @@ Instead he found something else creative, that was easier to make a living with 
 He wished he had more time to dedicate to his art.
 But in a way it didn’t matter.
 Art was still his first love, and they remained together.
-A place of creative beauty in his life.
+There was a place of creative beauty in his life.
 A sanctum he could always return to, and find depth, insight, meaning, and play!
 
 When his sister had a child, he would do art sessions with the child.
