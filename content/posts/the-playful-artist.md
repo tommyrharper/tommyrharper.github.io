@@ -119,7 +119,7 @@ It didn’t matter if he won any competitions (he had won a few since that first
 That was all that mattered.
 Nothing else existed in that moment.
 Just him, the brush, the canvas, and the freedom in his mind, to make it whatever he wanted it to be.
-To discovered what he wanted it to be, and to let that erupt on the page.
+To discover what he wanted it to be, and let that erupt on the page.
 
 Neither of these boys exist.
 Except inside of me.
