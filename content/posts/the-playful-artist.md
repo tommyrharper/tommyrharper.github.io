@@ -114,7 +114,7 @@ When his sister had a child, he would do art sessions with them, sharing the lov
 He drew his many tentacled creatures once again, and found he loved it just as much!
 Perhaps even more.
 The boy was now a man, and art lived in his heart.
-A part of he was.
+A part of who he was.
 It didn’t matter if he won any competitions (he had won a few since that first one).
 Or if he got paid for it (he could do with the money).
 Because in the moment his brush hit the canvas, and the paint brushes colour kissed the page, his heart lit up, and that was all that mattered.
