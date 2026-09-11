@@ -19,8 +19,7 @@ code_copy = true
 
 Once upon a time, there was a little lad, who had a bright idea.
 He wanted to be an artist - someone who would go down in history among the greats.
-He was determined to make progress on his goal.
-Fully convinced, if he could just work hard enough, he would earn his spot among his heros.
+Determined to make progress on his goal, he was fully convinced, with enough hard work, he would earn a spot among his heros.
 He made a commitment.
 Everyday he would wake up, gather his pencils, his paper, his paints, and work furiously.
 He would do an hour everyday before school.
