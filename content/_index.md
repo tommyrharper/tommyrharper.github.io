@@ -8,4 +8,4 @@ recent = false
 recent_max = 15
 recent_more_text = "more »"
 +++
-Hi, I'm Tom.
+Hi, I'm Tom. this is the content index

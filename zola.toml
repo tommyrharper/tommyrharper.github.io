@@ -34,9 +34,10 @@ anchors = "on"
 [extra]
 
 nav = [
+  { name = "about", path = "/about" },
   { name = "posts", path = "/posts" },
-  # { name = "tags", path = "/tags" },
-  { name = "github", path = "https://github.com/tommyrharper" }, 
+#  { name = "tags", path = "/tags" },
+#  { name = "github", path = "https://github.com/tommyrharper" }, 
 ]
 
 # Your info on the home page, if you don't want to display handle/bio/avatar, simply comment out that line
