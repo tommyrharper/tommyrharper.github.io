@@ -153,7 +153,7 @@ Notice, however, that the second boy never tries.
 He never becomes a famous artist, but he ends up with something much richer and deeper in the end.
 A practice that changes his life.
 Something deep, and full of joy and meaning, to share with the people he loves.
-He truly discovers the profound richness of his practice and it blossoms into something wonderful.
+He truly discovers the profound richness of his practice and it blossoms into a kind of cherished sanctum.
 
 The more we can be like the second boy, the easier it will be to integrate the practices we want into our lives.
 The happier the journey will be, and perhaps the deeper our mastery over our chosen domain will become.
