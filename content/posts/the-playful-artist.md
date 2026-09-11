@@ -106,7 +106,7 @@ He didn’t make it as a professional artist, though he had toyed with the idea.
 Instead he found something else creative, that was easier to make a living with - writing articles for the local paper.
 He wished he had more time to dedicate to his art.
 But in a way it didn’t matter.
-Art was still his first love, and they were together still.
+Art was still his first love, and they remained together.
 A place of creative beauty in his life.
 A sanctum he could always return to, and find depth, insight, meaning, and play!
 
