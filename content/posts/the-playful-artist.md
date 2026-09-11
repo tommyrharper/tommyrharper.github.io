@@ -17,32 +17,32 @@ code_copy = true
 
 > This piece is in honour of my [sister](https://www.instagram.com/rebeccaharperartist_), who taught me play, the wonder of art, and how to have fun!
 
-# A tail of two boys
+# A tale of two boys
 
 Once upon a time, there was a little lad, who had a bright idea.
 He wanted to be an artist - someone who would go down in history among the greats.
-Determined to make progress on his goal, he was fully convinced, with enough hard work, he would earn a spot among his heros.
+Determined to make progress on his goal, he was fully convinced, with enough hard work, he would earn a spot among his heroes.
 He made a commitment.
-Everyday he would wake up, gather his pencils, his paper, his paints, and work furiously.
+Every day he would wake up, gather his pencils, his paper, his paints, and work furiously.
 He would do an hour everyday before school.
 And more when he got back home!
 It began with a vengeance.
 
-Waking up early his pressed the pencil to the page, his mind singularly focused.
+Waking up early, he pressed the pencil to the page, his mind singularly focused.
 The lead would snap as it pressed down the detail deep into the page.
 But it was fine, he had more pencils, and sharpeners too!
 His work was accurate, and detailed.
 Realist.
 Soon to be ultra-realist!
-He was getting better everyday.
+He was getting better every day.
 He was sure of it.
 Glory would be his in the end!
 He would apply to competitions, and submit his art.
-Determine that he should win.
+Determined that he should win.
 Why shouldn’t he?
 He was working much harder than the other boys and girls.
 When he saw them painting, they would laugh, and have fun.
-Be he could see the mistakes in their work.
+But he could see the mistakes in their work.
 They would never achieve greatness like him.
 
 He applied for a competition, and failed.
@@ -54,7 +54,7 @@ Or the judges were wrong!
 This didn’t feel fair at all.
 The early mornings started to grind on the boy.
 He began to disdain his morning sessions.
-Breaking and more and lead.
+Breaking more and more and lead.
 One day he threw his paint pots on the floor and cried.
 He started to miss some days, and felt guilty.
 He had promised himself he would not stop, until he became one of the greats!
@@ -92,7 +92,7 @@ And why his art was supposed to be better than anyone else’s.
 Each piece of art was simply an adventure.
 He didn’t think one could be better than the other, they were just… different.
 
-People soon forgot about the boys success in the art competition, and so did the boy too.
+People soon forgot about the boy's success in the art competition, and so did the boy too.
 But he kept on painting, drawing, always finding it a source of solace and joy in his life.
 As he grew older his relationship to his art deepened and matured.
 He didn’t paint little tentacled creatures anymore.
@@ -154,7 +154,7 @@ A practice that changes his life.
 Something deep, and full of joy and meaning, to share with the people he loves.
 He truly discovers the profound richness of his practice and it blossoms into something that changes his life.
 
-I think the more we can be like the second boy, with the things we wish integrate into our lives, the easier a time we will have.
+I think the more we can be like the second boy, with the things we wish to integrate into our lives, the easier a time we will have.
 The happier the journey will be, and perhaps the deeper our mastery over our chosen domain will become.
 Because when something becomes a centre of joy and pleasure in our lives, we gravitate towards it.
 It becomes something we cannot pull ourselves away from.
@@ -164,7 +164,7 @@ It’s always fragile, held in place with duct tape and glue.
 
 But when you truly love something, it becomes a deep part of who you are.
 Inseparable from you.
-It becomes something you return to when times are hard, rather than something your find energy for, when times are good.
+It becomes something you return to when times are hard, rather than something you find energy for, when times are good.
 I have had this very transformation lately with meditation.
 What once felt like something I “should do”, has become something I love.
 Because I found pleasure and joy in it.
