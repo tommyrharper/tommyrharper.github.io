@@ -1,6 +1,6 @@
 base_url = "https://tommyrharper.github.io/"
 title = "Tom Harper"
-description = "Personal Website"
+description = "Tom Harper's Personal Website"
 default_language = "en"
 theme = "serene"
 output_dir = "public"
