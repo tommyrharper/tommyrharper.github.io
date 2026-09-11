@@ -17,7 +17,7 @@ code_copy = true
 
 > This piece is in honour of my [sister](https://www.instagram.com/rebeccaharperartist_), who taught me play, the wonder of art, and how to have fun!
 
-# A story of two boys
+# A tail of two boys
 
 Once upon a time, there was a little lad, who had a bright idea.
 He wanted to be an artist - someone who would go down in history among the greats.
