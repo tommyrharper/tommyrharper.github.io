@@ -17,6 +17,8 @@ code_copy = true
 
 > This piece is in honour of my [sister](https://www.instagram.com/rebeccaharperartist_), who taught me play, the wonder of art, and how to have fun!
 
+# A story of two boys
+
 Once upon a time, there was a little lad, who had a bright idea.
 He wanted to be an artist - someone who would go down in history among the greats.
 Determined to make progress on his goal, he was fully convinced, with enough hard work, he would earn a spot among his heros.
@@ -121,6 +123,8 @@ Nothing else existed in that moment.
 Just him, the brush, the canvas, and the freedom in his mind, to make it whatever he wanted it to be.
 To discover what he wanted it to be, and let that erupt on the page.
 
+# The truth
+
 Neither of these boys exist.
 Except inside of me.
 I do really have a [sister, who is a brilliant artist](https://www.instagram.com/rebeccaharperartist_).
@@ -168,11 +172,13 @@ Because it became something that makes me feel good - where I exercise my mental
 It is no longer like the boy trying to draw the perfect image.
 It is more like an adventure in my mind, a world of discovery that lies within.
 
-My encouragement to you is, where there is something you want to make a part of your life, but you can’t quite make it stick - to approach it more like the second boy.
-And see how you can make it feel like an adventure and source of play.
-Where you can make it less like steamed broccoli (I actually love broccoli), and more like play and fun!
+# Some advice
 
-Once it is something you look forward to it, and eventually something you crave, it won’t be hard to make that habit stick.
+My encouragement to you is, where there is something you want to make a part of your life, but you can’t quite make it stick - try to approach it more like the second boy.
+See how you can make it feel like an adventure and source of play.
+Where you can make it less like steamed broccoli (I actually love broccoli), and more like play and fun?
+
+Once it is something you look forward to, and eventually something you crave, it won’t be hard to make that habit stick.
 In fact you may find yourself having to draw boundaries around it so it doesn’t take over the rest of your life.
 That’s where I am now with my meditation.
 Each morning is this sacred, special time, where I get to experience love and joy in my heart, and I have to make myself stop, because I have other responsibilities, than just feeling good!
