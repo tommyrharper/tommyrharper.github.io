@@ -110,8 +110,7 @@ Art was still his first love, and they remained together.
 There was a place of creative beauty in his life.
 A sanctum he could always return to, and find depth, insight, meaning, and play!
 
-When his sister had a child, he would do art sessions with the child.
-And share the love, joy and playfulness that it gave him.
+When his sister had a child, he would do art sessions with them, sharing the love, joy and playfulness that it gave him.
 And he drew his many tentacled creatures once again, and found he loved just as much!
 Perhaps even more.
 The boy was now a man, and art lived in his heart.
