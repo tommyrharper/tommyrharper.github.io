@@ -81,7 +81,7 @@ One day one of his teachers, who normally told him off for not paying attention,
 How strange.
 Art wasn’t a competition.
 It was just for fun.
-But the teacher was insistent, and so he sent off his latest strange, many tentacles creature and soon forgot, as he became immersed in his next creation.
+But the teacher was insistent, and so he sent off his latest strange, many tentacled creature and soon forgot, as he became immersed in his next creation.
 Eventually the boy heard he’d won.
 He was surprised, and still didn’t fully get the idea of an art competition.
 They congratulated him at school during the assembly, and everyone clapped.
