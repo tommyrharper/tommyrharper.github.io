@@ -182,3 +182,9 @@ Once it is something you look forward to, and eventually something you crave, it
 In fact you may find yourself having to draw boundaries around it so it doesn’t take over the rest of your life.
 That’s where I am now with my meditation.
 Each morning is this sacred, special time, where I get to experience love and joy in my heart, and I have to make myself stop, because I have other responsibilities, than just feeling good!
+
+# Practical notes
+
+You may be left thinking - that all sounds really nice - but how do I actually put it into practice?
+I intend to do a follow up article on this with concrete instructions, for meditators at least.
+But for now, one article at a time.
