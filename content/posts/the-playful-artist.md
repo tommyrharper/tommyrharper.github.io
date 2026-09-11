@@ -165,7 +165,7 @@ I have had this very transformation lately with my meditation practice.
 What once felt like something I “should do”, has become something I love.
 Because I found pleasure and joy in it.
 Because it has become something that makes me feel good.
-And also it has become something where I exercise my creativity and freedom.
+And it also became something where I exercise my creativity and freedom.
 
 It is no longer like the boy trying to draw the perfect image.
 It is more like adventure in my mind, a world of discovery that lies within.
