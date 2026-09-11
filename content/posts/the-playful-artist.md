@@ -133,18 +133,18 @@ I, on the other hand, found other outlets.
 But I try to bring the spirit of artistic creation she shared with me into other elements of my life.
 Poetry has been one area that has retained for me the purity expressed in this piece - remaining a place of pure self-expression and play.
 
-However I am also ever so much the first boy, not in regards to my art or poetry, but concerning so many other elements of my life.
-I push myself hard, like forcing vegetables down my throat, in the name of some great goal that it feels I must pursue.
+I am, however, also ever so much the first boy, not in regards to my art or poetry, but concerning so many other elements of my life.
+I push myself hard - like forcing vegetables down my throat - in the name of some great goal that it feels I must pursue.
 I think many of us have this relationship to so many things in our life.
-We must work hard!
+You must work hard!
 You must exercise and eat healthily.
-And you better do a good job!
+And you better do a good job of it too!
 
 Recently I had a transformation in my meditation practice, and realised how counterproductive this can be.
 Just like the first boy, we may start with great vigour and intention.
-But eventually we give up and fall off the wagon.
+But eventually, give up and fall off the wagon.
 It’s just too difficult to sustain this force of will.
-But notice, the second boy never tries.
+Notice, however, that the second boy never tries.
 He never becomes a famous artist, but he ends up with something much richer and deeper in the end.
 A practice that changes his life.
 Something deep, and full of joy and meaning, to share with the people he loves.
