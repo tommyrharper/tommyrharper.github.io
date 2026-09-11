@@ -124,7 +124,8 @@ To discover what he wanted it to be, and let that erupt on the page.
 Neither of these boys exist.
 Except inside of me.
 I do really have a sister, who is a brilliant artist.
-And who shared with me the love and joy in the sense of creation in the act of art, as an act of play.
+She shared with me the sense of love and joy in the act of creation.
+The playfulness in art.
 She has always been a source of light in my life in this way, and continues to inspire me with her creative practice.
 I did actually unexpectedly win an art competition when I was a kid, but only one, the rest are imaginary!
 My sister has of course won many more awards and prizes, as a truly brilliant artist.
