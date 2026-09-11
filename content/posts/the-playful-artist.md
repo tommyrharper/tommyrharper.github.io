@@ -15,7 +15,7 @@ comment = false
 code_copy = true
 +++
 
-> This piece is honour of my sister, who taught me play, the wonder of art, and how to have fun!
+> This piece is in honour of my sister, who taught me play, the wonder of art, and how to have fun!
 
 Once upon a time, there was a little lad, who had a bright idea.
 He wanted to be an artist - someone who would go down in history among the greats.
