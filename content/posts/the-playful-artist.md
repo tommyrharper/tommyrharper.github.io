@@ -129,7 +129,6 @@ The playfulness in art.
 She has always been a source of light in my life in this way, and continues to inspire me with her creative practice.
 I did actually unexpectedly win an art competition when I was a kid, but only one, the rest are imaginary!
 My sister has of course won many more awards and prizes, as a truly brilliant artist.
-
 I, on the other hand, found other outlets.
 But I try to bring the spirit of artistic creation she shared with me into other elements of my life.
 Poetry has been one area that has retained for me the purity expressed in this piece - remaining a place of pure self-expression and play.
