@@ -103,7 +103,7 @@ To process his thoughts and emotions.
 To create something beautiful to share with others.
 But he never lost that sense of joy and play in his work.
 He didn’t make it as a professional artist, though he had toyed with the idea.
-Instead he found something else creative, that was easier to make a living with, writing articles for the local paper.
+Instead he found something else creative, that was easier to make a living with - writing articles for the local paper.
 He wished he had more time to dedicate to his art.
 But in a way it didn’t matter.
 Art was still his first love, and they were together still.
