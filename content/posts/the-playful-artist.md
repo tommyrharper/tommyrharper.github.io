@@ -63,7 +63,7 @@ His sister used to play with him when he was younger, bringing out the paint pot
 Drawing funny faces, strange animals, and weird worlds.
 He was lucky, his sister was an artist after all!
 He had no ambitions to be great, but he sure thought art was fun!
-In fact he snuck up early sometimes before school, to grab his sisters art materials, and draw the funny faces and creatures that always made him smile.
+In fact he snuck up early sometimes before school, to grab his sister's art materials, and draw the funny faces and creatures that always made him smile.
 It was a little escape, a secret world of his own that was always playful and fun!
 Where his imagination could run wild and free.
 Where monsters really existed, and heros, and magical beings too.
