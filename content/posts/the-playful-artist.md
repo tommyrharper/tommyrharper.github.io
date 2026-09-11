@@ -132,7 +132,7 @@ My sister has of course won many more awards and prizes, as a truly brilliant ar
 
 I, on the other hand, found other outlets.
 But I try to bring the spirit of artistic creation she shared with me into other elements of my life.
-Poetry has been one outlet that has retained for me the purity expressed in this piece, of being a place of pure self-expression and play.
+Poetry has been one area that has retained for me the purity expressed in this piece - remaining a place of pure self-expression and play.
 
 However I am also ever so much the first boy, not in regards to my art or poetry, but concerning so many other elements of my life.
 I push myself hard, like forcing vegetables down my throat, in the name of some great goal that it feels I must pursue.
