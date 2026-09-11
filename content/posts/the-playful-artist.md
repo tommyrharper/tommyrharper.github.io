@@ -91,7 +91,7 @@ Each piece of art was simply an adventure.
 He didn’t think one could be better than the other, they were just… different.
 
 People soon forgot about the boys success in the art competition, and so did the boy too.
-But he kept on painting, drawing, always finding it a source of solace, and joy in his life.
+But he kept on painting, drawing, always finding it a source of solace and joy in his life.
 As he grew older his relationship to his art deepened and matured.
 He didn’t paint little tentacled creatures anymore.
 He began to paint people he loved, and see some deep reflection of his psyche in his work.
