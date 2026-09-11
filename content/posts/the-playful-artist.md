@@ -76,7 +76,7 @@ Dragons, and wizards.
 Toads with 15 legs, and enchanting tentacles that could speak in secret vibrations to people on the other side of the world.
 He knew it was real, even if other people didn’t.
 
-One day one of his teachers, who normally told him off for not paying attention, saw one of his drawings and told him he should submit for a competition.
+One day one of his teachers, who normally told him off for not paying attention, saw one of his drawings and told him he should submit it for a competition.
 “A competition for art?” He thought.
 How strange.
 Art wasn’t a competition.
