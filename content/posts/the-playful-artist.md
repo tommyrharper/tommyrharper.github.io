@@ -115,9 +115,8 @@ He drew his many tentacled creatures once again, and found he loved it just as m
 Perhaps even more.
 The boy was now a man, and art lived in his heart.
 A part of who he was.
-It didn’t matter if he won any competitions (he had won a few since that first one).
-Or if he got paid for it (he could do with the money).
-Because in the moment his brush hit the canvas, and the paint brushes colour kissed the page, his heart lit up, and that was all that mattered.
+It didn’t matter if he won any competitions (he had won a few since that first one), or if he got paid for it (he could do with the money), because in the moment his brush hit the canvas, and the paint brush's colour kissed the page, his heart lit up.
+That was all that mattered.
 Nothing else existed in that moment.
 Just him, the brush, the canvas, and the freedom in his mind, to make it whatever he wanted it to be.
 To discovered what he wanted it to be, and to let that erupt on the page.
