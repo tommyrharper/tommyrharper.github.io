@@ -22,9 +22,9 @@ jobs:
         with:
           submodules: recursive
 
-      - uses: getzola/setup-zola@v1
+      - uses: taiki-e/install-action@v2
         with:
-          version: 0.23.4
+          tool: zola@0.23.4
 
       - run: zola build
 
