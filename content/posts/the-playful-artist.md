@@ -85,7 +85,7 @@ But the teacher was insistent, and so he sent off his latest strange, many tenta
 Eventually the boy heard he’d won.
 He was surprised, and still didn’t fully get the idea of an art competition.
 They congratulated him at school during the assembly, and everyone clapped.
-He couldn’t understand how suddenly something the teachers had kept telling him off for was suddenly a good thing.
+He couldn’t understand how something the teachers previously told him off for was suddenly a good thing.
 And why his art was supposed to be better than anyone else’s.
 Each piece of art was simply an adventure.
 He didn’t think one could be better than the other, they were just… different.
