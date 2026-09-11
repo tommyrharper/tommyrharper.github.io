@@ -68,7 +68,7 @@ It was a little escape, a secret world of his own that was always playful and fu
 Where his imagination could run wild and free.
 Where monsters really existed, and heros, and magical beings too.
 
-Sometimes when he would find himself doodling in the corner of his page at school, and by the end of the lesson he wouldn’t remember anything they had said, but he would have a whole imaginary world on his page, and have learnt no math at all!
+Sometimes when he would find himself doodling in the corner of his page at school, and by the end of the lesson he would have a whole imaginary world on his page, and have learnt no math at all!
 The teachers told him off sometimes for not paying attention.
 But he couldn’t help it, his mind just seemed to drift off into another world.
 When he came home, the first thing he would do is grab his crayons, and start drawing away at all the magical ideas he had floating around his head.
