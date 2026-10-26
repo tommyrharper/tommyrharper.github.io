@@ -5,10 +5,10 @@ description = "Hello world"
 
 [taxonomies]
 categories = ["meditation", "self-development"]
-tags = ["story"]
+tags = ["story", "meditation", "self-development"]
 
 [extra]
-subtitle = "(and how joy and fun can be a secret backdoor to discipline)"
+subtitle = "An allegory for people who try to hard (and how joy and fun can be a secret backdoor to discipline)"
 lang = "en"
 toc = false
 comment = false
@@ -16,6 +16,21 @@ code_copy = true
 +++
 
 > This piece is in honour of my [sister](https://www.instagram.com/rebeccaharperartist_), who taught me play, the wonder of art, and how to have fun!
+
+# Who is this for
+
+This piece is for people who try really hard to develop, discipline, but despite their best efforts, keep on failing.
+If you don't make enough effort, this story is not for you.
+Rather, it is for those people who put everything in, but still just can't seem to make those good habits stick.
+
+# Caveats
+
+Specifically this piece is about meditation, and may translate more or less well to developing other habits/practices.
+Furthermore, this has some very light and fluffy elements.
+It should be acknowledged how dark, painful and harsh life can be.
+If you are struggling with something deeply, this may not land.
+You may be in a time in life where you need to focus more on being tough/strong.
+Think of this as a story for when life is objectively okay, but you are continually frustrated by your efforts.
 
 # A tale of two boys
 
