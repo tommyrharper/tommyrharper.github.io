@@ -8,7 +8,7 @@ categories = ["meditation", "self-development"]
 tags = ["story", "meditation", "self-development"]
 
 [extra]
-subtitle = "An allegory for people who try to hard (and how joy and fun can be a secret backdoor to discipline)"
+subtitle = "An allegory for people who try too hard (and how joy and fun can be a secret backdoor to discipline)"
 lang = "en"
 toc = false
 comment = false
