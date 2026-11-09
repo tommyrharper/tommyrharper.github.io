@@ -59,7 +59,7 @@ color_scheme = "auto" # "auto" | "light" | "dark"
 
 # og_image = "img/og.png" # The default image for social media sharing (Open Graph), a path in static folder or a full URL
 
-footer_copyright = "© 2025 Thomas Harper"
+footer_copyright = "© 2026 Thomas Harper"
 footer_credits = false # Whether to show "Built with zola and serene" in footer
 
 not_found_error_text = "404 Not Found"
