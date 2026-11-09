@@ -1,16 +1,16 @@
 +++
 title = "Venture Academy application links"
-date = 2026-10-26
-
-[taxonomies]
-categories = ["links", "career"]
+description = "Links for Tom Harper's Venture Academy application"
+template = "prose.html"
+insert_anchor_links = "none"
+aliases = ["/posts/venture-academy-links/"]
 
 [extra]
 lang = "en"
-toc = false
-comment = false
-code_copy = true
+title = "Venture Academy application links"
 +++
+
+<style>#back-link { display: none }</style>
 
 - Bitcoin brokerage
    - No url - now closed - can provide further info on enquiry
